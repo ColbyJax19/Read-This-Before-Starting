@@ -1,5 +1,3 @@
-# Read-This-Before-Starting
-
 # Read This Before Starting
 
 This is a short document outlining the required materials, pre-work and time you will need to succeed in your time at onboard.
